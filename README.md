@@ -1,2 +1,5 @@
 # ijaz
-TR par jao
+fllow me in my account
+this my prosnal
+im busy
+wait
